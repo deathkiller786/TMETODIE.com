@@ -1,4 +1,4 @@
-# deathkiller786.github.io
+# TIMETODIE.com
 
 <head></head>
 <body>
